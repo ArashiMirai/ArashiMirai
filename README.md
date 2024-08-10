@@ -8,3 +8,4 @@ Você pode entrar em contato comigo 📫
 rafaelreche@gmail.com
 
 @alurastartestudante
+![](https://i.redd.it/u61p0lmsv4kc1.gif)
